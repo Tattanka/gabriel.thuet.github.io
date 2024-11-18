@@ -1,1 +1,1 @@
-# gabriel.thuet.github.io
+https://tattanka.github.io/gabriel.thuet.github.io/
